@@ -1,0 +1,1 @@
+# makum-assets
